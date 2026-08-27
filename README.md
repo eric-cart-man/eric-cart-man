@@ -3,13 +3,13 @@
 heyyhh guys ,,, i havent been in this fandom since 2022 so if i get something wrong about the canon then my apologies about that lol
 
 
-im not a big fan of the ships in this fandom but if you like them idrc .. tbh some are cute anyway like style or kenman or whatever is canon ig
+im not a big fan of most of the ships in this fandom but if you like them idrc tbh some are cute anyway , like style or kenman or whatever is canon ig
 
 
-bunny / carters (or whatever its called) pls dni though ,, proship also dni it should be obvious enough though 
+bunny and butters x cartman (or whatever its called) pls dni though ,, proship also dni it should be obvious enough
 
 
-please do not be frightened if i am suddenly quiet or rude outside of character alright ? my behaviour just varies sometimes i guess , if i unadd you dont bother trying to add me again ill just decline , even if you act like it isnt you ill probably notice anyway
+please do not be frightened if i am suddenly quiet or rude outside of character alright ? my behaviour just varies sometimes i guess , if i unadd you dont bother trying to add me again ill just decline
 
 
 🎭 - c+h available , usually with friends
