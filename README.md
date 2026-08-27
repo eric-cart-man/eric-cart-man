@@ -9,7 +9,10 @@ im not a big fan of most of the ships in this fandom but if you like them idrc t
 bunny and butters x cartman (or whatever its called) pls dni though ,, proship also dni it should be obvious enough
 
 
-please do not be frightened if i am suddenly quiet or rude outside of character alright ? my behaviour just varies sometimes i guess , if i unadd you dont bother trying to add me again ill just decline
+people who act strangely about the south park kids can ALSO stay away from me !!! whether thats individually or shipping tbh because idc that the show is like that , it doesnt give you the right to be like that aswell theyre still kids bro
+
+
+please do not be frightened if i am suddenly quiet or rude outside of character alright ? my behaviour just varies sometimes i guess brah 
 
 
 🎭 - c+h available , usually with friends
