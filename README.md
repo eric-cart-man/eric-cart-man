@@ -1,16 +1,14 @@
-## Hi there 👋
+<img width="854" height="480" alt="1000171097" src="https://github.com/user-attachments/assets/4e8dfcc7-d6ac-4bdf-bb75-850a0de350c1" />
 
-<!--
-**eric-cart-man/eric-cart-man** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+heyyhh ,,, call me cole
+i havent been in this fandom since 2022 so if i get something wrong about the canon then my apologies about that lol
 
-Here are some ideas to get you started:
+im not a big fan of the ships in this fandom but if you like them idrc .. tbh some are cute anyway like style or kenman or whatever is canon ig
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+bunny / carters (or whatever its called) pls dni though ,, proship also dni it should be obvious enough though 
+
+🎭 - c+h available , usually with friends
+🌙 - afk but you can still sit with me if you want
+⛔ - dni lol
+
+main acc @0fficer-sanchez
