@@ -9,6 +9,9 @@ im not a big fan of the ships in this fandom but if you like them idrc .. tbh so
 bunny / carters (or whatever its called) pls dni though ,, proship also dni it should be obvious enough though 
 
 
+please do not be frightened if i am suddenly quiet or rude outside of character alright ? my behaviour just varies sometimes i guess , if i unadd you dont bother trying to add me again ill just decline , even if you act like it isnt you ill probably notice anyway
+
+
 🎭 - c+h available , usually with friends
 
 🌙 - afk but you can still sit with me if you want
@@ -17,3 +20,5 @@ bunny / carters (or whatever its called) pls dni though ,, proship also dni it s
 
 
 main acc @0fficer-sanchez ... im in many other fandoms ok
+
+<img width="810" height="810" alt="1000171038" src="https://github.com/user-attachments/assets/d24fe010-b708-42e6-8d06-8ce3fdd7727c" />
