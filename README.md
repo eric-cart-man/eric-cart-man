@@ -3,7 +3,7 @@
 heyyhh guys ,,, i havent been in this fandom since 2022 so if i get something wrong about the canon then my apologies about that lol
 
 
-im not a big fan of most of the ships in this fandom but if you like them idrc tbh some are cute anyway , like style or kenman or whatever is canon ig
+im not a big fan of most of the ships in this fandom but if you like them idrc tbh some are cute anyway , like creek or kenman or whatever is canon ig
 
 
 bunny , kyman and butters x cartman (or whatever its called) pls dni though ,, proship also dni it should be obvious enough
