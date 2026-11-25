@@ -22,6 +22,4 @@ please do not be frightened if i am suddenly quiet or rude outside of character 
 ⛔ - dni lol
 
 
-main acc @0fficer-sanchez ... im in many other fandoms ok
-
 <img width="810" height="810" alt="1000171038" src="https://github.com/user-attachments/assets/d24fe010-b708-42e6-8d06-8ce3fdd7727c" />
